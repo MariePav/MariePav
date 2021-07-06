@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MariePavliashvili
+- 👀 I’m an IT / Tech Recruiter
+- 💞️ I’m looking for talented people in Tech industry.
+- 📫 How to reach me pavliashvilimarie@gmail.com
